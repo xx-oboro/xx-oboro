@@ -1,0 +1,5 @@
+- 👋 Yoo, I'm Oboro! But you can refer to me by Zane.
+- 👀 I’m interested in ... minecraft shits, lol
+- 🌱 I’m currently learning ... java, gametest
+- 💞️ I’m looking to collaborate on ... independant stuff lol.
+- 📫 How to reach me ... topzane#9999
